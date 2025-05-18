@@ -1,1 +1,1 @@
-
+Bill Chain Finance tokenizes traditional supply chain receivables and supports the circulation, financing, investment and intellectual property of funds through smart contracts and DeFi protocols, further optimizing the flow of supply chain funds, reducing financing costs, and promoting border supply chain financial services on a global scale.
